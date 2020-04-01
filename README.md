@@ -1,3 +1,9 @@
+## Maria Sol Sordelli    
+
+Legajo: 1713840
+
+Hola!
+
 Tengo 20 años, entre a UTN el año pasado. Vivo en caballito con mi mama y mi hermanito, lamentablemente no tengo mascotas, aunque me encantaría. 
 En cuanto a mis gustos, me encanta jugar al hockey, navegar, salir con mis amigos y mirar películas/ series. Mi película favorita es *10 Things I hate about you* y mi serie favorita es *Friends*. 
 Sin embargo, durante el año se me complica realizar estas actividades ya que suelo estar estudiando :).
